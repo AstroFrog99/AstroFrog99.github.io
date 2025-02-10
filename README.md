@@ -1,1 +1,1 @@
-# Philosophise with me!
+# Philosophize with me!
